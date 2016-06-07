@@ -11,7 +11,7 @@
 ***
 # <a href="http://dt-1.season.tw/607/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.uzon.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-2.ad5.hk/607/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.arph.org" target="_blank">翻墙网2</a>
+# <a href="http://dt-2.ad5.hk/607/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.arph.org" target="_blank">翻墙网2</a>
 
 
 ***
