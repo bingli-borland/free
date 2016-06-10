@@ -10,9 +10,9 @@
 
 
 ***
-# <a href="http://dt-1.ha2.tw/609/3" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.newca.org" target="_blank">翻墙网1</a>
+# <a href="https://d57q1mwtohl2e.cloudfront.net" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.newca.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-2.season.tw/609/3" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.svws.org" target="_blank">翻墙网2</a>
+# <a href="https://d2rcero5ltvn4b.cloudfront.net" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.svws.org" target="_blank">翻墙网2</a>
 
 ## <a href="http://fq-03.arph.org/urldt.php/609/3" target="_blank">>>动态网随机网址...</a>
 
