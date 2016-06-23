@@ -10,7 +10,7 @@
 
 
 ***
-# <a href="http://dt-1.kbse.org/623/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.gnet.hk" target="_blank">翻墙网1</a>
+# <a href="http://dt-1.kbse.org/623/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.fufu.hk" target="_blank">翻墙网1</a>
 
 # <a href="http://dt-2.dm4.tw/623/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.durun.org" target="_blank">翻墙网2</a>
 
