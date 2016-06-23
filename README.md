@@ -10,9 +10,9 @@
 
 
 ***
-# <a href="https://d3ag6yuq9h5sho.cloudfront.net" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d2e539fdr2co6.cloudfront.net" target="_blank">翻墙网1</a>
+# <a href="https://d3cg19ytyt69bo.cloudfront.net/623" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d2e539fdr2co6.cloudfront.net" target="_blank">翻墙网1</a>
 
-# <a href="https://d2ughe7v6s54l8.cloudfront.net" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://dwo2jfmzsy7dy.cloudfront.net" target="_blank">翻墙网2</a>
+# <a href="https://ddxa2v3kbkzi9.cloudfront.net/623" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://dwo2jfmzsy7dy.cloudfront.net" target="_blank">翻墙网2</a>
 
 ## <a href="https://d4ns9ke6mselo.cloudfront.net/urldt.php/623/1" target="_blank">>>动态网随机网址...</a>
 
