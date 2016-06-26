@@ -10,7 +10,7 @@
 
 
 ***
-# <a href="https://s3.tiandk.net/625/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://fq1.fq99.org" target="_blank">翻墙网1</a>
+# <a href="https://s4.tiandk.net/626/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://fq1.fq99.org" target="_blank">翻墙网1</a>
 
 # <a href="https://d2sqxeyfhda2vw.cloudfront.net/dtsj1.php" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d3ibs68n75kt7y.cloudfront.net/fqsj.php/625" target="_blank">翻墙网2</a>
 
