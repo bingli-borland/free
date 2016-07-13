@@ -12,11 +12,11 @@
 ***
 
 
-# &nbsp;&nbsp;<a href="https://github.com/zhen99425/free1/blob/master/README.md" target="_blank">翻墙特殊入口一</a>
+# &nbsp;&nbsp;<a href="https://github.com/zhen99425/fq1/blob/master/README.md" target="_blank">翻墙特殊入口一</a>
 
-# &nbsp;&nbsp;<a href="https://github.com/zhen99425/free2/blob/master/README.md" target="_blank">翻墙特殊入口二</a>
+# &nbsp;&nbsp;<a href="https://github.com/zhen99425/fq2/blob/master/README.md" target="_blank">翻墙特殊入口二</a>
 
-# &nbsp;&nbsp;<a href="https://github.com/zhen99425/free3/blob/master/README.md" target="_blank">翻墙特殊入口三</a>
+# &nbsp;&nbsp;<a href="https://github.com/zhen99425/fq3/blob/master/README.md" target="_blank">翻墙特殊入口三</a>
 
 
 ***
