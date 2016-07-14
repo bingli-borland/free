@@ -12,11 +12,11 @@
 ***
 
 
-# &nbsp;&nbsp;<a href="https://bit.ly/f-q-01" target="_blank">翻(fan)墙(qiang)入口(一)</a>
+# &nbsp;&nbsp;<a href="https://bit.ly/fqw-01" target="_blank">翻(fan)墙(qiang)入口(一)</a>
 
-# &nbsp;&nbsp;<a href="https://bit.ly/f-q-02" target="_blank">翻(fan)墙(qiang)入口(二)</a>
+# &nbsp;&nbsp;<a href="https://bit.ly/fqw-02" target="_blank">翻(fan)墙(qiang)入口(二)</a>
 
-# &nbsp;&nbsp;<a href="https://bit.ly/f-q-03" target="_blank">翻(fan)墙(qiang)入口(三)</a>
+# &nbsp;&nbsp;<a href="https://bit.ly/fqw-03" target="_blank">翻(fan)墙(qiang)入口(三)</a>
 
 
 ***
