@@ -12,11 +12,11 @@
 ***
 
 
-# &nbsp;&nbsp;<a href="http://x.co/fqw001" target="_blank">翻墙特殊入口一</a>
+# &nbsp;&nbsp;<a href="https://bit.ly/f-q-w-1" target="_blank">@翻@墙@入@口(一)</a>
 
-# &nbsp;&nbsp;<a href="http://x.co/fqw002" target="_blank">翻墙特殊入口二</a>
+# &nbsp;&nbsp;<a href="https://bit.ly/f-q-w-2" target="_blank">翻墙特殊入口二</a>
 
-# &nbsp;&nbsp;<a href="http://x.co/fqw003" target="_blank">翻墙特殊入口三</a>
+# &nbsp;&nbsp;<a href="https://bit.ly/f-q-w-3" target="_blank">翻墙特殊入口三</a>
 
 
 ***
