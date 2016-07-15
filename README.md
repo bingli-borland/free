@@ -7,9 +7,9 @@
 
 ***
 
-# <a href="http://d1kj03wxlwuehk.cloudfront.net/fqtz.php?tz=dt?id=1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d1kj03wxlwuehk.cloudfront.net/fqtz.php?tz=fq?id=1" target="_blank">翻墙网1</a>
+# <a href="http://d3k7583jhzp68f.cloudfront.net/fqtz.php?tz=dt?id=1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d3k7583jhzp68f.cloudfront.net/fqtz.php?tz=fq?id=1" target="_blank">翻墙网1</a>
 
-# <a href="http://d1kj03wxlwuehk.cloudfront.net/fqtz.php?tz=dt?id=2" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d1kj03wxlwuehk.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank">翻墙网2</a>
+# <a href="http://d3k7583jhzp68f.cloudfront.net/fqtz.php?tz=dt?id=2" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d3k7583jhzp68f.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank">翻墙网2</a>
 
 ***
 
@@ -24,8 +24,6 @@
 
 ***
 
-####固定短网址1：https://git.io/free
+####固定短网址：https://git.io/free
 
-####固定短网址2：http://x.co/fqw99
-
-<p><img src="https://d23aci1xbfhhbf.cloudfront.net/pic/yjfq-20160702ok.png"></p> 
+<p><img src="https://d23aci1xbfhhbf.cloudfront.net/pic/yjfq-20160207.png"></p> 
