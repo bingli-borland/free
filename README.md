@@ -7,12 +7,12 @@
 
 ***
 
-# <a href="http://http://d3k7583jhzp68f.cloudfront.net/fqtz.php?tz=fq?id=1" target="_blank"><img src="https://http://d3k7583jhzp68f.cloudfront.net/pic/fqwz1.png"></a>
+# <a href="http://d3k7583jhzp68f.cloudfront.net/fqtz.php?tz=fq?id=1" target="_blank"><img src="https://d3k7583jhzp68f.cloudfront.net/pic/fqwz1.png"></a>
 
-# <a href="http://http://d3k7583jhzp68f.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank"><img src="https://http://d3k7583jhzp68f.cloudfront.net/pic/fqwz2.png"></a>
+# <a href="http://d3k7583jhzp68f.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank"><img src="https://d3k7583jhzp68f.cloudfront.net/pic/fqwz2.png"></a>
 
 
-# <a href="http://http://d3k7583jhzp68f.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank"><img src="https://http://d3k7583jhzp68f.cloudfront.net/pic/yjfq-20160715ok.png"></a>
+# <a href="http://d3k7583jhzp68f.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank"><img src="https://d3k7583jhzp68f.cloudfront.net/pic/yjfq-20160715ok.png"></a>
 
 ***
 
