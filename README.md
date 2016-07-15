@@ -7,9 +7,9 @@
 
 ***
 
-# <a href="https://d1swfoyvmcpu3d.cloudfront.net/fqtz.php?tz=fq?id=1" target="_blank"><img src="https://d1swfoyvmcpu3d.cloudfront.net/pic/fqwz1.png"></a>
+# <a href="https://d7atsmgblp4qj.cloudfront.net/fqtz.php?tz=fq?id=1" target="_blank"><img src="https://d1swfoyvmcpu3d.cloudfront.net/pic/fqwz1.png"></a>
 
-# <a href="https://d1swfoyvmcpu3d.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank"><img src="https://d1swfoyvmcpu3d.cloudfront.net/pic/fqwz2.png"></a>
+# <a href="https://d7atsmgblp4qj.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank"><img src="https://d1swfoyvmcpu3d.cloudfront.net/pic/fqwz2.png"></a>
 
 ***
 
