@@ -7,12 +7,12 @@
 
 ***
 
- <img src="http://f-4.tins.hk/pic/yjfq-20160715ok.png"> 
+ <a href="https://camo.githubusercontent.com/538d0cf650e4d6629cc867f71fadd839c9adb7f4/687474703a2f2f662d342e74696e732e686b2f7069632f796a66712d32303136303731356f6b2e706e67" target="_blank"> <img src="http://f-4.tins.hk/pic/yjfq-20160715ok.png"> </a>
 
 ***
 
 
-# <a href="http://f-4.tins.hk/fqtz.php?tz=fq?id=1" target="_blank"><img src="https://f-4.tins.hk/pic/fqwz1.png"></a>
+# <a href="http://f-4.tins.hk/fqtz.php?tz=fq?id=1" target="_blank"><img src="http://f-4.tins.hk/pic/fqwz1.png"></a>
 
 # <a href="http://f-4.tins.hk/fqtz.php?tz=fq?id=2" target="_blank"><img src="http://f-4.tins.hk/pic/fqwz2.png"></a>
 
