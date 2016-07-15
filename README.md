@@ -7,7 +7,7 @@
 
 ***
 
-# <a href="http://d3021tu5z8ejr1.cloudfront.net/fqtz.php?tz=fq?id=1" target="_blank"><img src="https://d3021tu5z8ejr1.cloudfront.net/pic/yjfq-20160715ok.png"></a>
+# <a href="http://fq-3.dldx.org/fqtz.php?tz=fq?id=1" target="_blank"><img src="https://fq-3.dldx.org/pic/yjfq-20160715ok.png"></a>
 
 ***
 
