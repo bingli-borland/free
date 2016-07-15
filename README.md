@@ -7,6 +7,9 @@
 
 ***
 
+# <img src="https://d23aci1xbfhhbf.cloudfront.net/pic/yjfq-20160715ok.png">
+
+
 # <a href="https://d7atsmgblp4qj.cloudfront.net/fqtz.php?tz=fq?id=1" target="_blank"><img src="https://d1swfoyvmcpu3d.cloudfront.net/pic/fqwz1.png"></a>
 
 # <a href="https://d7atsmgblp4qj.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank"><img src="https://d1swfoyvmcpu3d.cloudfront.net/pic/fqwz2.png"></a>
@@ -23,4 +26,3 @@
 ###&nbsp;&nbsp;3. <a href="https://d23aci1xbfhhbf.cloudfront.net/fgget.php?fid=iNTD_TV.apk" target="_blank">安卓版电视iNTD TV(V2.1.6)</a>
 
 
-# <img src="https://d23aci1xbfhhbf.cloudfront.net/pic/yjfq-20160715ok.png">
