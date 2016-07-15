@@ -11,9 +11,6 @@
 
 # <a href="http://d3k7583jhzp68f.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank"><img src="https://d3k7583jhzp68f.cloudfront.net/pic/fqwz2.png"></a>
 
-
-# <a href="http://d3k7583jhzp68f.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank"><img src="https://d3k7583jhzp68f.cloudfront.net/pic/yjfq-20160715ok.png"></a>
-
 ***
 
 
@@ -24,3 +21,6 @@
 ### 手机安卓版翻墙软件：
 ###&nbsp;&nbsp;1. <a href="https://d23aci1xbfhhbf.cloudfront.net/fgget.php?fid=fgma32.apk" target="_blank">自由门安卓版3.2版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://d23aci1xbfhhbf.cloudfront.net/fgget.php?fid=um3.7.apk" target="_blank">无界一点通3.7版</a>
 ###&nbsp;&nbsp;3. <a href="https://d23aci1xbfhhbf.cloudfront.net/fgget.php?fid=iNTD_TV.apk" target="_blank">安卓版电视iNTD TV(V2.1.6)</a>
+
+
+# <img src="https://d23aci1xbfhhbf.cloudfront.net/pic/yjfq-20160715ok.png">
