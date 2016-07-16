@@ -12,7 +12,7 @@
 ***
 
 
-# <a href="http://f-4.tins.hk/fqtz.php?tz=fq?id=1" target="_blank"><img src="http://f-4.tins.hk/pic/fqwz1.png"></a>
+# <a href="https://d26qp07lgq7rc.cloudfront.net/fqtz.php?tz=fq?id=1" target="_blank"><img src="https://d26qp07lgq7rc.cloudfront.net/pic/fqwz1.png"></a>
 
 # <a href="http://f-4.tins.hk/fqtz.php?tz=fq?id=2" target="_blank"><img src="http://f-4.tins.hk/pic/fqwz2.png"></a>
 
