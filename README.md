@@ -7,7 +7,7 @@
 
 ***
 
- <a href="https://camo.githubusercontent.com/538d0cf650e4d6629cc867f71fadd839c9adb7f4/687474703a2f2f662d342e74696e732e686b2f7069632f796a66712d32303136303731356f6b2e706e67" target="_blank"> <img src="http://dsly1blkqnybv.cloudfront.net/pic/yjfq-20160715ok.png"> </a>
+ <a href="http://dsly1blkqnybv.cloudfront.net/pic/yjfq-20160715ok.png" target="_blank"> <img src="http://dsly1blkqnybv.cloudfront.net/pic/yjfq-20160715ok.png"> </a>
 
 ***
 
