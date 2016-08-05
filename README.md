@@ -7,14 +7,14 @@
 
 ***
 
- <a href="http://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160715ok.png" target="_blank"> <img src="http://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160715ok.png"> </a>
+ <a href="http://d7atsmgblp4qj.cloudfront.net/pic/yjfq-20160715ok.png" target="_blank"> <img src="http://d7atsmgblp4qj.cloudfront.net/pic/yjfq-20160715ok.png"> </a>
 
 ***
 
 
-# <a href="http://d3l9cy2nr7owdc.cloudfront.net/fqtz.php?tz=fq?id=1" target="_blank"><img src="http://d3l9cy2nr7owdc.cloudfront.net/pic/fqwz1.png"></a>
+# <a href="http://d23aci1xbfhhbf.cloudfront.net/fqtz.php?tz=fq?id=1" target="_blank"><img src="http://d23aci1xbfhhbf.cloudfront.net/pic/fqwz1.png"></a>
 
-# <a href="http://dsly1blkqnybv.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank"><img src="http://dsly1blkqnybv.cloudfront.net/pic/fqwz2.png"></a>
+# <a href="http://d23aci1xbfhhbf.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank"><img src="http://d23aci1xbfhhbf.cloudfront.net/pic/fqwz2.png"></a>
 
 ***
 
