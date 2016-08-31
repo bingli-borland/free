@@ -7,7 +7,7 @@
 
 ***
 
- <a href="http://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160715ok.png" target="_blank"> <img src="http://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160715ok.png"> </a>
+ <a href="http://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok.png" target="_blank"> <img src="http://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok.png"> </a>
 
 ***
 
