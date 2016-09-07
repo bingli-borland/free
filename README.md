@@ -8,6 +8,9 @@
 
 ***
 
+ <a href="http://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-b.png" target="_blank"> <img src="http://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-b.png"> </a>
+ 
+***
 
 # <a href="http://d23aci1xbfhhbf.cloudfront.net/fqtz.php?tz=fq?id=1" target="_blank"><img src="http://d23aci1xbfhhbf.cloudfront.net/pic/fqwz1.png"></a>
 
@@ -24,7 +27,5 @@
 ###&nbsp;&nbsp;1. <a href="http://da8wc507nc9ea.cloudfront.net/fgget.php?fid=fgma32.apk" target="_blank">自由门安卓版3.2版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="http://da8wc507nc9ea.cloudfront.net/fgget.php?fid=um3.8.apk" target="_blank">无界一点通3.8版</a>
 ###&nbsp;&nbsp;3. <a href="http://da8wc507nc9ea.cloudfront.net/fgget.php?fid=iNTD_TV.apk" target="_blank">安卓版电视iNTD TV(V2.1.6)</a>
 
-***
 
- <a href="http://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-b.png" target="_blank"> <img src="http://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-b.png"> </a>
  
