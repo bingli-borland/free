@@ -14,7 +14,7 @@
 
 # <a href="https://d39lnlhmim5ql2.cloudfront.net/fqtz.php?tz=fq?id=1" target="_blank"><img src="https://d39lnlhmim5ql2.cloudfront.net/pic/fqwz1.png"></a>
 
-# <a href="https://d3pre8snfu1d99.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank"><img src="https://d3pre8snfu1d99.cloudfront.net/pic/fqwz2.png"></a>
+# <a href="https://d322y0msguokbn.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank"><img src="https://d322y0msguokbn.cloudfront.net/pic/fqwz2.png"></a>
 
 ***
 
