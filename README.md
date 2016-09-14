@@ -8,9 +8,9 @@
 
 ***
 
-# <a href="https://x.co/fqtz01" target="_blank">最新翻墙网址一</a>
+# <a href="https://github.com/zhen99425/free1/blob/master/README.md?914" target="_blank">最新翻墙网址一</a>
 
-# <a href="https://x.co/fqtz02" target="_blank">最新翻墙网址二</a>
+# <a href="https://github.com/zhen99425/free2/blob/master/README.md?914" target="_blank">最新翻墙网址二</a>
 
 ***
 
