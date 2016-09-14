@@ -12,7 +12,7 @@
  
 ***
 
-# <a href="https://is.gd/fqwg01" target="_blank"><img src="https://d24vamtg8nug0w.cloudfront.net/pic/fqwz1.png"></a>
+# <a href="http://d1cnfksiqlo3ex.cloudfront.net/fqtz.php?tz=fq?id=1" target="_blank"><img src="https://d24vamtg8nug0w.cloudfront.net/pic/fqwz1.png"></a>
 
 # <a href="https://is.gd/fqwg02" target="_blank"><img src="https://d24vamtg8nug0w.cloudfront.net/pic/fqwz2.png"></a>
 
