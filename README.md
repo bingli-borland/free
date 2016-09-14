@@ -5,9 +5,9 @@
 <a href="https://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-b.png" target="_blank"><img src="https://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-c.png"></a>
 
 
-# &nbsp;<a href="https://github.com/zhen99425/free1/blob/master/README.md?914" target="_blank">最新翻墙网址一</a>
+# <a href="https://github.com/zhen99425/free1/blob/master/README.md?914" target="_blank"><img src="http://d1exfyyqjfql3w.cloudfront.net/pic/fqwz1.png"></a>
 
-# &nbsp;<a href="https://github.com/zhen99425/free2/blob/master/README.md?914" target="_blank">最新翻墙网址二</a>
+# <a href="https://github.com/zhen99425/free2/blob/master/README.md?914" target="_blank"><img src="http://d1exfyyqjfql3w.cloudfront.net/pic/fqwz2.png"></a>
 
 ***
 
