@@ -8,9 +8,9 @@
 
 ***
 
-# <a href="https:/x.co/fqtz01" target="_blank">最新翻墙网址一</a>
+# <a href="https://x.co/fqtz01" target="_blank">最新翻墙网址一</a>
 
-# <a href="https:/x.co/fqtz02" target="_blank">最新翻墙网址二</a>
+# <a href="https://x.co/fqtz02" target="_blank">最新翻墙网址二</a>
 
 ***
 
