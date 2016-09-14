@@ -12,9 +12,9 @@
  
 ***
 
-# <a href="http://d23aci1xbfhhbf.cloudfront.net/fqtz.php?tz=fq?id=1" target="_blank"><img src="http://d23aci1xbfhhbf.cloudfront.net/pic/fqwz1.png"></a>
+# <a href="http://d2e2konokeb1qw.cloudfront.net/fqtz.php?tz=fq?id=1" target="_blank"><img src="http://d2e2konokeb1qw.cloudfront.net/pic/fqwz1.png"></a>
 
-# <a href="http://d7atsmgblp4qj.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank"><img src="http://d7atsmgblp4qj.cloudfront.net/pic/fqwz2.png"></a>
+# <a href="http://d3pre8snfu1d99.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank"><img src="http://d3pre8snfu1d99.cloudfront.net/pic/fqwz2.png"></a>
 
 ***
 
