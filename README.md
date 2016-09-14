@@ -8,13 +8,9 @@
 
 ***
 
- <a href="https://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-b.png" target="_blank"> <img src="https://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-b.png"> </a>
- 
-***
+# <a href="https:/x.co/fqtz01" target="_blank">最新翻墙网址一</a>
 
-# <a href="https://d284bdugbiq603.cloudfront.net/fqtz.php?tz=fq?id=1" target="_blank"><img src="http://d24vamtg8nug0w.cloudfront.net/pic/fqwz1.png"></a>
-
-# <a href="https://d1cnfksiqlo3ex.cloudfront.net/fqtz.php?tz=fq?id=2" target="_blank"><img src="http://d24vamtg8nug0w.cloudfront.net/pic/fqwz2.png"></a>
+# <a href="https:/x.co/fqtz02" target="_blank">最新翻墙网址二</a>
 
 ***
 
@@ -27,5 +23,10 @@
 ###&nbsp;&nbsp;1. <a href="http://da8wc507nc9ea.cloudfront.net/fgget.php?fid=fgma32.apk" target="_blank">自由门安卓版3.2版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="http://da8wc507nc9ea.cloudfront.net/fgget.php?fid=um3.8.apk" target="_blank">无界一点通3.8版</a>
 ###&nbsp;&nbsp;3. <a href="http://da8wc507nc9ea.cloudfront.net/fgget.php?fid=iNTD_TV.apk" target="_blank">安卓版电视iNTD TV(V2.1.6)</a>
 
+***
+
+ <a href="https://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-b.png" target="_blank"> <img src="https://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-b.png"> </a>
+ 
+***
 
  
