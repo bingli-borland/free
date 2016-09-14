@@ -5,8 +5,6 @@
 #####（网址如暂时打不开，请过一段时间再试）
 #####（微信如打不开，请转到浏览器中打开）
 
-***
-
  <a href="https://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-b.png" target="_blank"> <img src="https://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-b.png"> </a>
  
 ***
