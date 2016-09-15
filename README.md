@@ -5,9 +5,9 @@
 <a href="https://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-b.png" target="_blank"><img src="https://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-c.png"></a>
 
 
-# <a href="https://is.gd/fqwg01" target="_blank"><img src="https://d1exfyyqjfql3w.cloudfront.net/pic/fqwz1.png"></a>
+# <a href="https://bit.ly/fqw9901" target="_blank"><img src="https://d1exfyyqjfql3w.cloudfront.net/pic/fqwz1.png"></a>
 
-# <a href="https://is.gd/fqwg02" target="_blank"><img src="https://d1exfyyqjfql3w.cloudfront.net/pic/fqwz2.png"></a>
+# <a href="https://bit.ly/fqw9902" target="_blank"><img src="https://d1exfyyqjfql3w.cloudfront.net/pic/fqwz2.png"></a>
 
 ***
 
