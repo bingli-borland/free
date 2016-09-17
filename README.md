@@ -6,9 +6,9 @@
 
 ***
 
-# <a href="https://x.co/fqtz01" target="_blank"><img src="https://dsly1blkqnybv.cloudfront.net/pic/fqwz1.png"></a>
+# <a href="https://bit.ly/fqw9901" target="_blank"><img src="https://dsly1blkqnybv.cloudfront.net/pic/fqwz1.png"></a>
 
-# <a href="https://x.co/fqtz02" target="_blank"><img src="https://dsly1blkqnybv.cloudfront.net/pic/fqwz2.png"></a>
+# <a href="https://bit.ly/fqw9902" target="_blank"><img src="https://dsly1blkqnybv.cloudfront.net/pic/fqwz2.png"></a>
 
 ***
 
