@@ -2,8 +2,6 @@
 # 电脑、手机一键翻墙
 （2016/09/19 更新，网址有效）
 
-本页短网址：https://git.io/free
-
 ###（微信如打不开，请转到浏览器打开）
 
 ***
@@ -24,5 +22,7 @@
 ###&nbsp;&nbsp;3. <a href="https://da8wc507nc9ea.cloudfront.net/fgget.php?fid=iNTD_TV.apk" target="_blank">安卓版电视iNTD TV(V2.1.6)</a>
 
 ***
+
+本页固定短网址：https://git.io/free
 
 <a href="https://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-b.png" target="_blank"><img src="https://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-b.png"></a>
