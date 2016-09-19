@@ -23,6 +23,4 @@
 
 ***
 
-本页固定短网址：https://git.io/free
-
 <a href="https://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-b.png" target="_blank"><img src="https://d1dv2d1k0mse32.cloudfront.net/pic/yjfq-20160831ok-b.png"></a>
