@@ -4,7 +4,7 @@
 
 ###（微信如打不开，请转到浏览器打开）
 
-### &nbsp;&nbsp;<a href="https://is.gd/juanzhu" target="_blank">>>点此捐助翻墙</a> 
+### &nbsp;&nbsp;<a href="http://x.co/juanzhu" target="_blank">>>点此捐助翻墙</a> 
 
 
 ***
