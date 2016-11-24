@@ -9,9 +9,9 @@
 
 ***
 
-# <a href="https://x.co/fqtz01" target="_blank"><img src="https://dsly1blkqnybv.cloudfront.net/pic/fqwz1.png"></a>
+# <a href="http://go2l.ink/fqw01" target="_blank"><img src="https://dsly1blkqnybv.cloudfront.net/pic/fqwz1.png"></a>
 
-# <a href="https://x.co/fqtz02" target="_blank"><img src="https://dsly1blkqnybv.cloudfront.net/pic/fqwz2.png"></a>
+# <a href="http://go2l.ink/fqw02" target="_blank"><img src="https://dsly1blkqnybv.cloudfront.net/pic/fqwz2.png"></a>
 
 ***
 
