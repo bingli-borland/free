@@ -4,14 +4,14 @@
 
 ###（微信如打不开，请转到浏览器打开）
 
-## &nbsp;&nbsp;<a href="http://go2l.ink/juanzhu" target="_blank">>>点此捐助翻墙</a> 
+## &nbsp;&nbsp;<a href="https://is.gd/juanzhu" target="_blank">>>点此捐助翻墙</a> 
 
 
 ***
 
-# <a href="http://go2l.ink/fqw01" target="_blank"><img src="https://dsly1blkqnybv.cloudfront.net/pic/fqwz1.png"></a>
+# <a href="http://x.co/fqtz01" target="_blank"><img src="https://dsly1blkqnybv.cloudfront.net/pic/fqwz1.png"></a>
 
-# <a href="http://go2l.ink/fqw02" target="_blank"><img src="https://dsly1blkqnybv.cloudfront.net/pic/fqwz2.png"></a>
+# <a href="http://x.co/fqtz02" target="_blank"><img src="https://dsly1blkqnybv.cloudfront.net/pic/fqwz2.png"></a>
 
 ***
 
