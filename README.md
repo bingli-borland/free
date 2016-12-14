@@ -1,7 +1,7 @@
-﻿<table>
+<table>
  
 <tr>
-<td colspan=2 align=center>
+<td align=center>
     
 # 自由上网简易方法
 # 电脑、手机一键翻墙
