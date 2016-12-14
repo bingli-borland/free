@@ -26,7 +26,7 @@
 <tr>
 <td align=center>
 
-#### 固定短网址: <a href="https://github.com/zhen99425/free/edit/master/README.md?1214" target="_blank"> https://git.io/free </a>
-
+<img src="https://dffvm4zdheee.cloudfront.net/pic/yjfq-20160831ok-b.png" /> 
+    
 </td>
 </tr>
