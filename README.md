@@ -9,3 +9,7 @@
 
 # <a href="https://d3085ff2fkev5o.cloudfront.net" target="_blank">自由上网入口1</a>
 # <a href="https://d3085ff2fkev5o.cloudfront.net" target="_blank">自由上网入口2</a>
+
+***
+
+<a href="https://github.com/zhen99425/free/edit/master/README.md?1214" target="_blank">本页固定短网址 https://git.io/free</a><br>
