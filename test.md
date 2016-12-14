@@ -17,8 +17,7 @@
 <tr>
 <td align=center>
 
-# <a href="
-https://dqk2mk0wge0u8.cloudfront.net
+# <a href="https://dqk2mk0wge0u8.cloudfront.net
 " target="_blank">自由上网入口1</a>
 # <a href="
 https://df9k85rg4hh8u.cloudfront.net
