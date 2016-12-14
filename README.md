@@ -25,6 +25,7 @@
 <tr>
 <td align=center>
 
+<a href="https://github.com/ogate/ogate/blob/master/README.md?web" target="_blank">https://git.io/ogate</a>
 #### 固定短网址: <a href="https://github.com/zhen99425/free/edit/master/README.md?1214" target="_blank"> https://git.io/free </a>
 
 </td>
