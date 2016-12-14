@@ -1,4 +1,4 @@
-﻿<table>
+﻿﻿<table>
   <tr></tr>
 
 <tr>
@@ -17,13 +17,7 @@
 <tr>
 <td align=center>
 
-# <a href="
-https://d1r4kvnwizsaa9.cloudfront.net
-" target="_blank">自由上网入口1</a>
-# <a href="
-https://d3085ff2fkev5o.cloudfront.net
-" target="_blank">自由上网入口2</a>
-﻿</td>
+# <a href="https://d2s1v5xpebmk77.cloudfront.net" target="_blank">自由上网入口1</a># <a href="https://d2susvcasemcx8.cloudfront.net" target="_blank">自由上网入口2</a>﻿</td>
 </tr>
 
 <tr>
