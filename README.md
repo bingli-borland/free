@@ -7,5 +7,5 @@
 
 ***
 
-# <a href="https://dww83qpyycjgg.cloudfront.net" target="_blank">自由上网入口1</a>
-# <a href="https://dh3u06lo4y364.cloudfront.net" target="_blank">自由上网入口2</a>
+# <a href="https://d3085ff2fkev5o.cloudfront.net" target="_blank">自由上网入口1</a>
+# <a href="https://d3085ff2fkev5o.cloudfront.net" target="_blank">自由上网入口2</a>
