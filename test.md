@@ -18,10 +18,10 @@
 <td align=center>
 
 # <a href="
-https://d3vlr709kufybc.cloudfront.net
+https://d3glrwxipac508.cloudfront.net
 " target="_blank">自由上网入口1</a>
 # <a href="
-https://d2ud3w7fi5sxy8.cloudfront.net
+https://d3badpfgasw7dt.cloudfront.net
 " target="_blank">自由上网入口2</a>
 ﻿</td>
 </tr>
