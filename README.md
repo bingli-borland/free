@@ -18,7 +18,7 @@
 <td align=center>
 
 # <a href="http://vvv3.oex.nu/858" target="_blank">自由上网入口1</a>
-# <a href="http://vvv3.oex.nu/999" target="_blank">自由上网入口2</a><br/>
+# <a href="http://vvv3.oex.nu/999" target="_blank">自由上网入口2</a>
 
 </td>
 </tr>
