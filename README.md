@@ -10,8 +10,8 @@
 
 
 ***
-# <a href="https://d1av2i30i5z5dz.cloudfront.net" target="_blank">втсииомЬхК©з1</a>
-# <a href="https://d2hsesakh7eang.cloudfront.net" target="_blank">втсииомЬхК©з2</a>
+# <a href="https://d1av2i30i5z5dz.cloudfront.net" target="_blank">Х┤╙Г■╠Д╦┼Г╫▒Е┘╔Е▐ё1</a>
+# <a href="https://d2hsesakh7eang.cloudfront.net" target="_blank">Х┤╙Г■╠Д╦┼Г╫▒Е┘╔Е▐ё2</a>
 О╩©
 ***
 
