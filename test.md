@@ -1,4 +1,5 @@
 <table> <tr></tr> <tr> <td colspan=2 align=center> 
+
  # 自由上网简易方法 
  # 电脑、手机一键翻墙 （2016/12/13 测试，网址有效）
  #####（微信如打不开，请转到浏览器打开） </td> </tr> <tr> <td align=center>
