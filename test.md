@@ -10,8 +10,8 @@
 
 
 ***
-# <a href="https://dpog3a1x4qgrf.cloudfront.net" target="_blank">втсииомЬхК©з1</a>
-# <a href="https://d1iyptfyr9084i.cloudfront.net" target="_blank">втсииомЬхК©з2</a>
+# <a href="https://dpog3a1x4qgrf.cloudfront.net" target="_blank">Х┤╙Г■╠Д╦┼Г╫▒Е┘╔Е▐ё1</a>
+# <a href="https://d1iyptfyr9084i.cloudfront.net" target="_blank">Х┤╙Г■╠Д╦┼Г╫▒Е┘╔Е▐ё2</a>
 О╩©
 ***
 
