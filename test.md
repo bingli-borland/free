@@ -1,3 +1,7 @@
-<table> <tr></tr> <tr> <td colspan=2 align=center> \n # 自由上网简易方法 \n # 电脑、手机一键翻墙 （2016/12/13 测试，网址有效）\n #####（微信如打不开，请转到浏览器打开） </td> </tr> <tr> <td align=center># <a href="https://dpog3a1x4qgrf.cloudfront.net" target="_blank">自由上网入口1</a>
-# <a href="https://d1iyptfyr9084i.cloudfront.net" target="_blank">自由上网入口2</a>
+<table> <tr></tr> <tr> <td colspan=2 align=center> 
+ # 自由上网简易方法 
+ # 电脑、手机一键翻墙 （2016/12/13 测试，网址有效）
+ #####（微信如打不开，请转到浏览器打开） </td> </tr> <tr> <td align=center>
+# <a href="" target="_blank">自由上网入口1</a>
+# <a href="https://df9k85rg4hh8u.cloudfront.net" target="_blank">自由上网入口2</a>
 </td> </tr> <tr> <td align=center> <img src=https://camo.githubusercontent.com/81ca426978be68652bc3660ca87554fc756a75ce/68747470733a2f2f646666766d347a64686565652e636c6f756466726f6e742e6e65742f7069632f796a66712d32303136303833316f6b2d622e706e67 /> </td> </tr>
