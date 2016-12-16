@@ -10,8 +10,8 @@
 
 
 ***
-# <a href="https://dpog3a1x4qgrf.cloudfront.net" target="_blank">自由上网入口 1</a>
-# <a href="https://d1iyptfyr9084i.cloudfront.net" target="_blank">自由上网入口 2</a>
+# <a href="https://dqk2mk0wge0u8.cloudfront.net" target="_blank">自由上网入口1</a>
+# <a href="https://df9k85rg4hh8u.cloudfront.net" target="_blank">自由上网入口2</a>
 ﻿
 ***
 
