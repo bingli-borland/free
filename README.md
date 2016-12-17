@@ -10,7 +10,7 @@
 
 
 ***
-# <a href="https://dqk2mk0wge0u8.cloudfront.net" target="_blank">自由上网入口1</a>
+# <a href="https://d3vlr709kufybc.cloudfront.net" target="_blank">自由上网入口1</a>
 urltt2
 ﻿
 ***
