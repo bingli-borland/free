@@ -10,12 +10,12 @@
 
 
 ***
-# <a href="https://dlpgt8pl6pqzb.cloudfront.net/?tz=fq?id=1" target="_blank">自由上网入口1</a>
-# <a href="https://d1l079u7hpqkye.cloudfront.net/?tz=fq?id=2" target="_blank">自由上网入口2</a>
+# <a href="https://d1y7xdkstn4gh4.cloudfront.net/?tz=fq?id=1" target="_blank">自由上网入口1</a>
+# <a href="https://d2roegnb07oze9.cloudfront.net/?tz=fq?id=2" target="_blank">自由上网入口2</a>
 # <a href="https://github.com/ogate/ogate/blob/master/README.md?1218" target="_blank">自由上网入口3</a>
 ﻿
 ***
 
 
 
-<img src="https://camo.githubusercontent.com/81ca426978be68652bc3660ca87554fc756a75ce/68747470733a2f2f646666766d347a64686565652e636c6f756466726f6e742e6e65742f7069632f796a66712d32303136303833316f6b2d622e706e67" /> 
+<img src="https://camo.githubusercontent.com/36add6748031b745384a169f17479823eb9e30f0/68747470733a2f2f6461746d7861376f31777571312e636c6f756466726f6e742e6e65742f7069632f796a66712d32303136313232316f6b2e706e67" /> 
