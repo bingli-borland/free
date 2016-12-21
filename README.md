@@ -2,7 +2,7 @@
 
 # 电脑、手机一键翻墙
 
-（2016/12/19 测试，网址有效）
+（2016/12/21 测试，网址有效）
 
 
 ###（微信如打不开，请转到浏览器打开）
@@ -10,8 +10,8 @@
 
 
 ***
-# <a href="https://d1l079u7hpqkye.cloudfront.net/?tz=fq?id=1" target="_blank">自由上网入口1</a>
-# <a href="https://dlpgt8pl6pqzb.cloudfront.net/?tz=fq?id=2" target="_blank">自由上网入口2</a>
+# <a href="https://d2roegnb07oze9.cloudfront.net/?tz=fq?id=1" target="_blank">自由上网入口1</a>
+# <a href="https://d1y7xdkstn4gh4.cloudfront.net/?tz=fq?id=2" target="_blank">自由上网入口2</a>
 # <a href="https://github.com/ogate/ogate/blob/master/README.md?1218" target="_blank">自由上网入口3</a>
 ﻿
 ***
