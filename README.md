@@ -14,11 +14,8 @@
 
 
 ***
-# <a href="https://d3ty71n0qzhy1k.cloudfront.net" target="_blank">自由上网入口1</a>
+# <a href="https://dqk2mk0wge0u8.cloudfront.net" target="_blank">自由上网入口1</a>
 # <a href="https://github.com/ogate/ogate/blob/master/README.md?1218" target="_blank">自由上网入口2</a>
 ﻿
 ***
 
-
-
-<img src="https://camo.githubusercontent.com/36add6748031b745384a169f17479823eb9e30f0/68747470733a2f2f6461746d7861376f31777571312e636c6f756466726f6e742e6e65742f7069632f796a66712d32303136313232316f6b2e706e67" /> 
