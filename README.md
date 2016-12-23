@@ -10,7 +10,7 @@
 
 
 ***
-# <a href="https://d30kj825svr5v5.cloudfront.net" target="_blank">自由上网入口1</a>
+# <a href="https://d2hje0wt6w6738.cloudfront.net" target="_blank">自由上网入口1</a>
 # <a href="https://github.com/ogate/ogate/blob/master/README.md?1218" target="_blank">自由上网入口2</a>
 ﻿
 ***
