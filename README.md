@@ -10,11 +10,11 @@
 
 ***
 
-<img src="https://camo.githubusercontent.com/36add6748031b745384a169f17479823eb9e30f0/68747470733a2f2f6461746d7861376f31777571312e636c6f756466726f6e742e6e65742f7069632f796a66712d32303136313232316f6b2e706e67" /> 
+<img src="https://camo.githubusercontent.com/0421e9ad0300bf34cb00373624397e41cb9467dc/68747470733a2f2f64316a6a6a3470317432616f33732e636c6f756466726f6e742e6e65742f7069632f796a66712d32303136313232356f6b2e706e67" /> 
 
 
 ***
-# &nbsp;&nbsp; <a href="https://d2cajmnzle502y.cloudfront.net" target="_blank">自由上网入口1</a>
+# &nbsp;&nbsp; <a href="https://d3pcuckco00vgx.cloudfront.net" target="_blank">自由上网入口1</a>
 # &nbsp;&nbsp; <a href="http://fq01.gnoia.org" target="_blank">自由上网入口2</a>
 # &nbsp;&nbsp; <a href="https://github.com/ogate/ogate/blob/master/README.md?1225" target="_blank">自由上网入口3</a>
 ﻿
