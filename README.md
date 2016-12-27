@@ -14,7 +14,7 @@
 
 
 ***
-# &nbsp;&nbsp; <a href="https://d1o81273yzk1x2.cloudfront.net" target="_blank">自由上网入口1</a>
+# &nbsp;&nbsp; <a href="https://d38fjf8xqcd9e9.cloudfront.net" target="_blank">自由上网入口1</a>
 # &nbsp;&nbsp; <a href="http://fq01.gnoia.org" target="_blank">自由上网入口2</a>
 # &nbsp;&nbsp; <a href="https://github.com/ogate/ogate/blob/master/README.md?1225" target="_blank">自由上网入口3</a>
 ﻿
