@@ -14,8 +14,8 @@
 
 
 ***
-# &nbsp;&nbsp; <a href="http://fqa3.fq99.org" target="_blank">自由上网入口1</a>
-# &nbsp;&nbsp; <a href="http://fq01.ert99.com" target="_blank">自由上网入口2</a>
+# &nbsp;&nbsp; <a href="http://fq01.ert99.com" target="_blank">自由上网入口1</a>
+# &nbsp;&nbsp; <a href="http://fq02.iyogi.org" target="_blank">自由上网入口2</a>
 # &nbsp;&nbsp; <a href="https://github.com/ogate/ogate/blob/master/README.md?1225" target="_blank">自由上网入口3</a>
 ﻿
 ***
