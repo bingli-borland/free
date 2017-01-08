@@ -2,7 +2,7 @@
 
 # 电脑、手机一键翻墙
 
-（2017/01/05 测试，网址有效）
+（2017/01/08 测试，网址有效）
 
 
 ###（微信如打不开，请转到浏览器打开）
@@ -14,8 +14,8 @@
 
 
 ***
-# &nbsp;&nbsp; <a href="http://fq01.craeg.org" target="_blank">自由上网入口1</a>
-# &nbsp;&nbsp; <a href="http://fq02.linuxdn.org" target="_blank">自由上网入口2</a>
+# &nbsp;&nbsp; <a href="https://fq01.fqw99.eu.org" target="_blank">自由上网入口1</a>
+# &nbsp;&nbsp; <a href="http://fq01.craeg.org" target="_blank">自由上网入口2</a>
 # &nbsp;&nbsp; <a href="https://github.com/ogate/ogate/blob/master/README.md?1225" target="_blank">自由上网入口3</a>
 ﻿
 ***
