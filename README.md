@@ -14,7 +14,7 @@
 
 
 ***
-# &nbsp;&nbsp; <a href="https://gxvvax-0999r-8.fqw99.eu.org" target="_blank">自由上网入口1</a>
+# &nbsp;&nbsp; <a href="https://bhb-9-0-12uuu-9.fqw99.eu.org" target="_blank">自由上网入口1</a>
 # &nbsp;&nbsp; <a href="https://github.com/ogate/ogate/blob/master/README.md?0109" target="_blank">自由上网入口2</a>
 ﻿
 ***
