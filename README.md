@@ -14,7 +14,7 @@
 
 
 ***
-# &nbsp;&nbsp; <a href="https://fq188.fq001.tk " target="_blank">自由上网入口1</a>
+# &nbsp;&nbsp; <a href="https://fq189.fq001.tk " target="_blank">自由上网入口1</a>
 # &nbsp;&nbsp; <a href="https://github.com/ogate/ogate/blob/master/README.md?0109" target="_blank">自由上网入口2</a>
 ﻿
 ***
