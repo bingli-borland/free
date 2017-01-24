@@ -9,7 +9,7 @@
 ***
 
 
-# &nbsp;&nbsp; <a href="http://fqtz-3226.fq1001.com/?uid=2 " target="_blank">自由上网入口2</a>
+# &nbsp;&nbsp; <a href="http://fqtz-3228.fq1001.com/?uid=2 " target="_blank">自由上网入口2</a>
 
 # &nbsp;&nbsp; <a href="https://github.com/ogate/ogate/blob/master/README.md?0119" target="_blank">自由上网入口2</a>
 ***
