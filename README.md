@@ -2,15 +2,15 @@
 
 # 电脑、手机一键翻墙
 
-（2017/02/03 测试，网址有效）
+（2017/02/05 测试，网址有效）
 
 ###（微信如打不开，请转到浏览器打开）
 
 ***
 
 
-# &nbsp;&nbsp; <a href="http://fqtz-1003.fqtz99.info/?t=6455&?uid=1 " target="_blank">自由上网入口1</a>
-# &nbsp;&nbsp; <a href="http://fqtz-1004.fqtz99.info/?t=2120&?uid=2 " target="_blank">自由上网入口2</a>
+# &nbsp;&nbsp; <a href="http://fqtz-1005.fqtz99.info/?t=18534&?uid=1 " target="_blank">自由上网入口1</a>
+# &nbsp;&nbsp; <a href="http://fqtz-1006.fqtz99.info/?t=12651&?uid=2 " target="_blank">自由上网入口2</a>
 # &nbsp;&nbsp; <a href="https://github.com/ogate/ogate/blob/master/README.md?0125" target="_blank">自由上网入口3</a>
 ***
 
