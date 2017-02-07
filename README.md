@@ -9,8 +9,8 @@
 ***
 
 
-# &nbsp;&nbsp; <a href="http://fqtz-1919.fqtz99.info/?t=1445&?uid=1 " target="_blank">自由上网入口1</a>
-# &nbsp;&nbsp; <a href="http://fqtz-1920.fqtz99.info/?t=14475&?uid=2 " target="_blank">自由上网入口2</a>
+# &nbsp;&nbsp; <a href="http://fqtz-1921.fqtz99.info/?t=7182&?uid=1 " target="_blank">自由上网入口1</a>
+# &nbsp;&nbsp; <a href="http://fqtz-1922.fqtz99.info/?t=30941&?uid=2 " target="_blank">自由上网入口2</a>
 # &nbsp;&nbsp; <a href="https://github.com/ogate/ogate/blob/master/README.md?0125" target="_blank">自由上网入口3</a>
 ***
 
